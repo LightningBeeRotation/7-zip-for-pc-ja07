@@ -1,4 +1,4 @@
-# 
+# advanced 7-Zip for PC | 7-Zip for Windows Automation | unicode-support + solid-archives offers the most advanced 7-Zip for PC | 7-Zip for Windows automation, with unicode-support
 
 
 
